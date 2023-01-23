@@ -1,4 +1,2 @@
-# Welcome to Kharitonov.Consulting
-
-Possibly you were looking for:
-- [Vasilii Kharitonov](https://www.linkedin.com/in/kharit/)
+You may have been looking for:
+- [Vasilii Kharitonov (LinkedIn](https://www.linkedin.com/in/kharit/)
